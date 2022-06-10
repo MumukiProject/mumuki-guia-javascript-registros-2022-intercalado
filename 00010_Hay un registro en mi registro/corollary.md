@@ -1,0 +1,1 @@
+Y también podríamos tener registros que adentro tengan registros que adentro tengan reg.... :flushed:
